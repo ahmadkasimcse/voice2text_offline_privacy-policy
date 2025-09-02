@@ -1,0 +1,1 @@
+# voice2text_offline_privacy-policy
